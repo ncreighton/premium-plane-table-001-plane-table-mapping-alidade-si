@@ -1,0 +1,2 @@
+# premium-plane-table-001-plane-table-mapping-alidade-si
+Tired of losing critical alidade sight line data between field sketches and final maps? The Plane Table Mapping Alidade Sight Line Manager transforms your Notion workspace into a digital field book that captures every bearing, distance, and observation at the moment you take it.  This template eliminates the chaos of scattered paper notes and incon
